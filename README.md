@@ -1,4 +1,4 @@
-Discord : https://discord.gg/3rm8Jdf2Vq
+Discord : https://discord.gg/C3aN2bBVbB
 
 <img src="http://cloud.xlife.fr/images/loadingscreen/Glitch-Loadingscreen-FiveM-V6.png">
 
